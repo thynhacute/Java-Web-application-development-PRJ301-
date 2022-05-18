@@ -1,1 +1,1 @@
-Web management selling vegetables and fruits
+Web management selling vegetables and fruits.
